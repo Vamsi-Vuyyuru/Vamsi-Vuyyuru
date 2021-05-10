@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Vamsi Vuyyuru
-- 👀 I’m interested in... Automation and Building Innovative Products to make technology work as human extension.
+- 👀 I’m interested in... Automation and Building Innovative Products to make technology as human extension.
 - 🌱 I’m currently learning... Artificial Intelligence
 - 💞️ I’m looking to collaborate on... Product Development
 - 📫 How to reach me... vuyyuruvamcy@gmail.com, +91 9959758453
